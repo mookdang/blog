@@ -1,4 +1,13 @@
-##Road Trip to the Beach!
+# My daughter
 
-####have you ever driving along the *Oregon Coast!* for the whole week as your vocation, if not here is what you are missing!
+Her name is *Celina.* 
+
+She is the most funny person I ever meet and this is **why**
+
+* She thinks baby come from mommy eating it.
+* She thinks she has Ice Power.
+* She thinks preschool is only school she has to go.
+
+
+
 
